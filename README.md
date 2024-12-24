@@ -13,3 +13,5 @@ You can click the Preview link to take a look at your changes.
 
 
 [1](https://hfsz2319.ly-xiang.us.kg/alist)
+[aymao](https://aymao.com)
+[chat](https://hack.chat/hfsz2319)
