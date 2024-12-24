@@ -16,3 +16,4 @@ You can click the Preview link to take a look at your changes.
 [aymao](https://aymao.com)
 [chat](https://hack.chat/hfsz2319)
 [phi](https://phitogether.fun)
+[bing](https://www4.bing.com)
